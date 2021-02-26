@@ -1,1 +1,1 @@
-# botist
+WENSAMİTA NEİVA - BOTLİST BOTU
